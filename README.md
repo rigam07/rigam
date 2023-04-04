@@ -1,0 +1,2 @@
+# rigam
+Airdrop aktual
